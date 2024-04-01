@@ -1,2 +1,0 @@
-# motivational-meme
-Serkan Sinan
